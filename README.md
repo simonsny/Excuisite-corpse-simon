@@ -7,3 +7,9 @@ Now he is looking for some friends.
 The map first brings him to a place called “_Discord_”.
 I think I already heard about that, Simon thinks to himself.
 Maybe I will visit it someday.
+
+Mo visits the map of simon
+he thinks it is going to be a nice collaboration 
+mo and simon could learn toghether how to code 
+
+
