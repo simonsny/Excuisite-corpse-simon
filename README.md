@@ -11,7 +11,7 @@ Maybe I will visit it someday.
 
 The quest to find friends leads simon to table 4. 
 Whilst in table 4, Simon discovers several friends through shared challenges!
-These challenges are emerging from operating Github.
+These challenges are emerging from the operation Github.
 
 Mo visits the map of simon
 he thinks it is going to be a nice collaboration 
